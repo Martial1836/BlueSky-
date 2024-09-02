@@ -1,2 +1,2 @@
-# BlueSky-
-Join us  For free signals 
+# BLUESKY FOREX TRADING-
+JOIN US NOW FOR FREE FOREX SIGNALS 
